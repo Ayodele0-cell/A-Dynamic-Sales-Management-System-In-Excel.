@@ -170,6 +170,6 @@ All drop-downs and dynamic references in the form and formulas are controlled fr
 
 **Otun Oluwapelumi Ayodele (AAT)**  
 Certified Accounting Technician | Data Enthusiast  
-📧 Email: [oluwapelumiotun@gmail.com](mailto:oluwapelumiotun@gmail.com)  
-🕊️ Twitter: [@FiscalMindAcct](https://twitter.com/FiscalMindAcct)  
-💼 LinkedIn: [oluwapelumiotun](https://linkedin.com/in/oluwapelumiotun) 
+Email: [ayodeleotunfm@gmail.com](mailto:.ayodeleotunfm@gmail.com)  
+Twitter: [@FiscalMindAcct](https://twitter.com/FiscalMindAcct)  
+LinkedIn: [oluwapelumiotun](https://linkedin.com/in/oluwapelumiotun) 
